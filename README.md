@@ -1,1 +1,1 @@
-<p align='center'> zophios / zoph </br> 17 , system </br> tmale & queer </p>
+<p align='center'> eddward / bugg </br> 17 y/o osdd system </br> tmasc & arospec </p>
